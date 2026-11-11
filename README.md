@@ -1,0 +1,2 @@
+# BOFELKONURALPEM-R
+guvenli-okul
